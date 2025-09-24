@@ -1,6 +1,7 @@
 ---
-{"dg-publish":true,"permalink":"/hx-h-jp-campanha/o-motivo-de-tudo/"}
+{"dg-publish":true,"permalink":"/hx-h-jp-campanha/o-motivo-de-tudo/","tags":["gardenEntry"]}
 ---
+
 
 Sr Trajano de alguma maneira ficou sabendo sobre nen e hatsu, após isso entrou em contato com outras famílias, como a Salles e os Marinho.
 
